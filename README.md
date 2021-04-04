@@ -1,2 +1,2 @@
 # Hello!
-I'm CheekyRB, but people call me Cheeky. I'm a pogchamp gamer who plays minecraft, mods for cobblesword, and messes around on [Twitter](https://twitter.com/cheekyrb)
+I'm ooCheeky, but people call me Cheeky. I'm a gamer who plays minecraft, moderates CobbleSword, and messes around on [Twitter](https://twitter.com/oocheeky) 😃
